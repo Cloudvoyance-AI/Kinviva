@@ -3,6 +3,10 @@
 
 > **"The most dangerous disconnection is the one nobody notices."**
 
+
+<img width="4746" height="6679" alt="image" src="https://github.com/user-attachments/assets/d5059cb8-a302-4f90-aea9-71e9c6f23295" />
+
+
 ---
 
 ## The Core Idea
